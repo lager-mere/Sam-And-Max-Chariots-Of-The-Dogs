@@ -218,4 +218,4 @@ Sam & Max: Chariots of the Dogs is available as a full free version with all fea
 Don't miss out on this amazing adventure—**download Sam & Max: Chariots of the Dogs now and start your journey with the legendary duo!**
 
 ---
-**Last updated:** 2026-10-10 13:23:12 UTC
+**Last updated:** 2026-10-10 18:18:05 UTC
